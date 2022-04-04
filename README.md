@@ -1,7 +1,7 @@
 ### Hi there 👋
 Sou aluno da Turma #1 da SIRIUS 
                                                                                                                                  
-Brasileiro , Nordestino, Baiano arretado: Místico e Louco
+Brasileiro , Nordestino, Baiano arretado!!
 <!--  
 **andrealvessirius/andrealvessirius** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
